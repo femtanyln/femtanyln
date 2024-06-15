@@ -3,9 +3,9 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=femtanyln&label=Profile%20views&color=0e75b6&style=flat" alt="femtanyln" /> </p>
 
-- I wanna kms **No**
+- I wanna kms **i dont really**
 
-- 📝 I regularly write articles on [My notebook](My notebook)
+- 📝 I regularly write articles on My notebook sadly
 
 - 💬 Ask me about **Universe, solar system, galaxies**
 
