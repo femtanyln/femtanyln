@@ -1,17 +1,19 @@
 <h1 align="center">Hi 👋, I'm Selin</h1>
 <h3 align="center">A silly person</h3>
 
+![image alt](https://images.app.goo.gl/hNnMU5ABcHpa7Qcv8)
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=femtanyln&label=Profile%20views&color=0e75b6&style=flat" alt="femtanyln" /> </p>
 
 - I wanna kms **i dont really**
 
 - 📝 I regularly write articles on My notebook sadly
 
-- 💬 Ask me about **Universe, solar system, galaxies**
+- i like talking about**Universe, solar system, galaxies**
 
 - 📫 How to reach me **selinelaulgudur28@gmail.com**
 
-- ⚡ Fun fact **I can eat you:3**
+!
+- Fun fact **I can eat you:3**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
