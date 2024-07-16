@@ -1,7 +1,7 @@
-<h1 align="center">Hi 👋, I'm Selin</h1>
+<h1 align="center">HAII IM SELIN</h1>
 <h3 align="center">A silly person</h3>
 
-![image alt](https://images.app.goo.gl/hNnMU5ABcHpa7Qcv8)
+![Image alt](https://images.app.goo.gl/hNnMU5ABcHpa7Qcv8)
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=femtanyln&label=Profile%20views&color=0e75b6&style=flat" alt="femtanyln" /> </p>
 
 - I wanna kms **i dont really**
