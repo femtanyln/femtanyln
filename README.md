@@ -10,7 +10,6 @@
 
 - i like talking about**Universe, solar system, galaxies**
 
-- 📫 How to reach me **selinelaulgudur28@gmail.com**
 
 !
 - Fun fact **I can eat you:3**
